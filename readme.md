@@ -1,1 +1,0 @@
-# laprak modul 2
