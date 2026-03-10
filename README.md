@@ -1,1 +1,0 @@
-# 109082500145_Amanda-Septiana-Salsabila
